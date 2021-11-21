@@ -6,9 +6,7 @@ I am a Mexican programming enthusiast, with the spirit of sharing knowledge and 
 
 ## 📬 Get in touch
 
-- LinkedIn: [linkedin.com/in/fernandomireles](https://www.linkedin.com/in/danieldelapenabrito/)
-
-
+- LinkedIn: [linkedin.com/in/danieldelapenabrito](https://www.linkedin.com/in/danieldelapenabrito/)
 
 
 ## &#x1f4c8; My GitHub Stats
