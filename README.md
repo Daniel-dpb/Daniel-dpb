@@ -6,9 +6,8 @@ I am a Mexican programming enthusiast, with the spirit of sharing knowledge and 
 
 ## 📬 Get in touch
 
-- LinkedIn: [linkedin.com/in/fernandomireles](https://www.linkedin.com/in/fernandomireles/)
-- Instagram: [instagram.com/fernandodilland](https://www.instagram.com/fernandodilland/)
-- Facebook: [facebook.com/fernandodilland](https://www.facebook.com/FernandoDilland)
+- LinkedIn: [linkedin.com/in/fernandomireles](https://www.linkedin.com/in/danieldelapenabrito/)
+
 
 
 
